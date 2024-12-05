@@ -1,5 +1,5 @@
 **19** / digital artist / **dc comics nerd**<br/>
-![image](https://github.com/user-attachments/assets/8f6e2d38-7bba-4185-beec-48a7127ba547)
+![image](https://imgur.com/A0KyGNc)
 ***
 ### **INTRO:**<br/>
 hi, i go by a few usernames. **oan-planet**, **planet.oa**...<br/>
