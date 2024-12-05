@@ -20,7 +20,7 @@ i also like **comics**! i specifically collect **DC comics**!<br/>
 \
 i mainly like **the flash (barry allen)** and **green lantern (hal jordan)**!<br/>
 my other interests consist of movies/tv series like:<br/>
-**back to the future, terminator, matrix, stargate, astro boy, etc.**<br/>
+**back to the future, terminator, invader zim, astro boy, etc.**<br/>
 \
 don't be afraid to talk to me if you like either of these!!<br/>
 ***
