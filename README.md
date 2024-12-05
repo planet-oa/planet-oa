@@ -1,8 +1,7 @@
 ![image](https://github.com/user-attachments/assets/022e76c6-7d92-45f6-8b03-bcfe8913c603)
 ***
 ### **INTRO:**<br/>
-hi, i go by a few usernames. **oan-planet**, **planet.oa**...<br/>
-wherever you found me from on pony.town, i'm known as **indy** to my friends!<br/>
+hi, you can call me xander, lantern, or whatever.<br/>
 ***
 ### **BYI:**<br/>
 i don't got a lot to say besides the obvious common sense.<br/>
@@ -12,7 +11,7 @@ i'm pretty awkward, and i know pony.town is a wild rodeo with a few bad eggs.<br
 **i'm not very active on here!** if you wish to be friends, you can ask!<br/>
 please keep in mind i don't like to talk to people who are way younger than me.<br/>
 i won't friend anyone under 16, and even then I am uncomfortable being close friends with minors.<br/>
-**please iwc if you are younger than me as i am 19. please be safe online y'all!**
+**please iwc if you are younger than me as i am 19.**
 ***
 ### **INTERESTS:**<br/>
 i'm more of a sci-fi person, and i like old things!<br/>
@@ -27,7 +26,5 @@ don't be afraid to talk to me if you like either of these!!<br/>
 ***
 ### **ETC:**<br/>
 i'm on and off on pony.town and usually i come on as whatever pony i choose.<br/>
-usually that'll range to whatever interest i'm in currently, but for the main ones...<br/>
-i'll mostly be **hal jordan/green lantern**, **krillin**, and **astro boy**.<br/>
 \
-anyway-- idm chatting! it's cool to meet fellow dc fans on here once in a while!
+anyway-- idm chatting!
