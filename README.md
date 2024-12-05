@@ -1,4 +1,3 @@
-**19** / digital artist / **dc comics nerd**<br/>
 ![image](https://github.com/user-attachments/assets/022e76c6-7d92-45f6-8b03-bcfe8913c603)
 ***
 ### **INTRO:**<br/>
